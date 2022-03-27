@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @Stre1t
+👋 Hi, I’m @Stre1t
 
